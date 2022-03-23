@@ -1,0 +1,2 @@
+- hey! my name is ari
+- prns are she/her/they/them
